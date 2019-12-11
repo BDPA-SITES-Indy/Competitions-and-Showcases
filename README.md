@@ -1,1 +1,1 @@
-# Competitions-and-Showcases
+# Competitions & Showcases
